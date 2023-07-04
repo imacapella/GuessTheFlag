@@ -2,12 +2,8 @@
 
 GUESS THE FLAG AND GRAB THE POINTS!
 
+***<img width="311" alt="image" src="https://github.com/imacapella/GuessTheFlag/assets/101065086/abfae214-c2f7-4eb3-9445-b64ec0287510">
+<img width="311" alt="image" src="https://github.com/imacapella/GuessTheFlag/assets/101065086/fb93c304-bfc7-437d-a901-c21ace74b131">
+<img width="311" alt="image" src="https://github.com/imacapella/GuessTheFlag/assets/101065086/360876a4-d4e3-4efd-a286-7c9ae7ee3e6b">
+<img width="311" alt="image" src="https://github.com/imacapella/GuessTheFlag/assets/101065086/f1a614f8-22c6-40f1-b0e4-fdb5d72e3d6c">***
 
-***<img width="311" src="(https://github.com/imacapella/GuessTheFlag/assets/101065086/c72d82ce-7025-4de3-a56b-e93505e2812a)
-">
-<img width="311" alt="image" src="![Simulator Screenshot - iPhone 14 - 2023-07-04 at 16 57 18](https://github.com/imacapella/GuessTheFlag/assets/101065086/9cea8b36-1784-40ca-97e7-205fe6027db0)
-">
-<img width="311" alt="image" src="![Simulator Screenshot - iPhone 14 - 2023-07-04 at 16 57 22](https://github.com/imacapella/GuessTheFlag/assets/101065086/dfff3332-1330-42e8-b4ca-b05748a5e963)
-">
-<img width="311" alt="image" src="![Simulator Screenshot - iPhone 14 - 2023-07-04 at 16 57 26](https://github.com/imacapella/GuessTheFlag/assets/101065086/84f221e5-4bdd-42f9-9253-5256e5c556cf)
-">***
